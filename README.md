@@ -28,7 +28,6 @@ This project and website represent a step toward creating awareness, fostering i
 For collaborations, inquiries, or discussions, feel free to connect with me:
 
 - **Website**: [musayyabshah.com](https://musayyabshah.com)
-- **WhatsApp**: +923706282866  
 
 ## 🙌 Gratitude
 
